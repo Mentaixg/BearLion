@@ -65,10 +65,17 @@ Iuafv+WtkOWTpeWTpe+8jOaIkeaYqOWkqeWBmuaipu+8jOaipuWIsOS4lueVjOacq+aXpeS6hu+8jOi/
 
 ***
 
-## 第十三回 一起躺  （2020年12月2日）
+## 第十三回 一起躺  （2020年12月13日）
 4oCc6JKcfui/meS4quW6iuWlveiIkuacjeWViu+8jOS9oOS5n+i6uuS4i+ivleivleWQp+KAnQrigJznnJ/nmoTlkJfvvJ/pgqPmiJHourrkuIvkvaDlj6/kuI3orrjkubHliqjlk6bvvIzmn7/lrZDlk6Xlk6XigJ0K4oCc5ZOO5ZGAfuaUvuW/g+WQp+KAnQrigJznnJ/nmoTlpb3oiJLmnI3llYrvvIzmn7/lrZDlk6Xlk6XigKbigKblkrHku6zmjqXkuIvmnaXlgZrku4DkuYjlkYDigJ0K4oCcKC3PiS3jgIIp4oCmenpaWuKAnQrigJzlk7zvvIjvvYDjgbjCtO+8ieKAnQ==
 
 [一起躺图片](./Image/一起躺)
+
+***
+
+## 第十四回 录新歌  （2020年12月16日）
+4oCc5p+/5a2Q5ZOl5ZOl77yM5oiR5LuK5aSp5b2V5LqG5paw5q2M5ZOf77yM5L2g54yc54yc5piv5ZOq6aaW4oCdCuKAnOi/meiwgeeMnOW+l+WIsOWViu+8jOiAjOS4lOS9oOWQrOiHquW3seW9leeahOatjOaXtuWAmeS4uuS7gOS5iOeskeW+l+mCo+S5iOeUnOWViuKAnQrigJzkurrlrrbmg7PliLDkvaDkuoblmJt+4oCdCuKAnOWPquacieWQrOWIsOatjOeahOaXtuWAmeaJjeS8muaDs+WIsOaIkeWQl++8n+KAnQrigJzlhbblrp7igKbigKbkuIDnm7Tpg73mg7MgbygqLy8vL+KWvS8vLy8qKXHigJ0=
+
+[录新歌图片](./Image/录新歌)
 
 ***
 
